@@ -1,7 +1,7 @@
-# Alone-Pt.-II
+# Alone Pt. II
 Alan Walker  and  Ava Max
 
-words
+lyrics
 
 We were young, posters on the wall
 Praying we're the ones that the teacher wouldn't call
